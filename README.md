@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Disgustin
+- 👋 Hi, I’m @Disgustin or if you know me, Mo!
 - 🌱 I’m currently a first year at the University of Warwick
 - 📫 How to reach me: sogood#6079 on discord.
 
